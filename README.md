@@ -8,7 +8,6 @@ I love learning, and you can access my public notes on [my blog]([https://1dnu11
 
 # Where To Find Me
 
-|  |  |
 | --- | --- |
 | [Personal Blog](https://1dnu11.github.io/) | [LinkedIn](https://www.linkedin.com/in/migcardoso/) |
 | [HackTheBox](https://app.hackthebox.com/users/1505894) | [Google]([https://www.instagram.com/mischavandenburg](https://www.google.com/search?q=1dnu11&source=lmns&bih=1287&biw=1125&prmd=isvnbz&hl=en&sa=X&ved=2ahUKEwiN-PeLu4iFAxUHlCcCHavuAYAQ0pQJKAB6BAgBEAI)https://www.google.com/search?q=1dnu11&source=lmns&bih=1287&biw=1125&prmd=isvnbz&hl=en&sa=X&ved=2ahUKEwiN-PeLu4iFAxUHlCcCHavuAYAQ0pQJKAB6BAgBEAI) |
